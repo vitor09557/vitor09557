@@ -8,4 +8,4 @@
 
   ### Você entram em contato comigo📧
 
-  00001125535428SP@aluno.educacao.sp.gov.br
+  00001125535428SP@al.educacao.sp.gov.br
